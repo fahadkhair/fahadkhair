@@ -11,7 +11,7 @@
 💞️ I’m looking to collaborate on innovative projects that blend technology with creativity, where I can contribute my expertise and learn from like-minded individuals. Let's join forces to create something truly remarkable!
 
 ## Contact Information
-📫 How to reach me? Feel free to connect via email at fahadkhair@example.com or whatsapp +923022342034 or reach out on social media platforms. I'm always open to engaging in meaningful discussions and exploring exciting opportunities.
+📫 How to reach me? Feel free to connect via email at fahadkhair@gmail.com or whatsapp +923022342034 or reach out on social media platforms. I'm always open to engaging in meaningful discussions and exploring exciting opportunities.
 
 ## Fun Facts
 😄 Pronouns: He/Him
