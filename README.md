@@ -1,5 +1,5 @@
 ## Introduction
-👋 Hi, I’m @fahadkhair, a passionate individual diving into the realms of technology and creativity. With a keen eye for innovation and a heart set on learning, I'm on a journey to explore the endless possibilities that the digital world offers.
+👋 Hi, I’m Shah Fahad, a passionate individual diving into the realms of technology and creativity. With a keen eye for innovation and a heart set on learning, I'm on a journey to explore the endless possibilities that the digital world offers.
 
 ## Interests
 👀 I’m interested in a myriad of subjects, from coding and design to entrepreneurship and sustainability. Constantly seeking inspiration from diverse fields, I thrive on the excitement of new ideas and challenges.
